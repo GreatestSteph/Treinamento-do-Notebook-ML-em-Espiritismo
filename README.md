@@ -23,15 +23,26 @@ Faça perguntas sobre o assunto, crie resumos, slides e entre outras opções de
 
 ### Vídeos:
 https://www.youtube.com/watch?v=v-i5SAl3Nws
+
 https://www.youtube.com/watch?v=zq030MAMtVI
+
 https://www.youtube.com/watch?v=VT95mAfLMJk
+
 https://www.youtube.com/watch?v=-XKsdnOfBOw
+
 https://www.youtube.com/watch?v=vK5-ETX310g
+
 https://www.youtube.com/watch?v=jvH4qon_nWg
+
 
 ### Links / Páginas Web:
 https://pt.wikipedia.org/wiki/Tar%C3%B4
+
 https://www.tarotsimounao.com/todas-as-cartas-de-taro/
+
 https://www.destinynums.com/pt-br/matriz-do-destino111/
+
 https://destinymatrix.cc/pt-BR/learn/basics-intro
+
 https://www.destinynums.com/pt-br/matriz-de-compatibilidade-3/
+
